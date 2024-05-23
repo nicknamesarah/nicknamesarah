@@ -1,4 +1,4 @@
-## bem vindos ao meu perfil⛧
+## bem vindos ao meu perfil⛧♱
 
 meu nome é sarah
 
